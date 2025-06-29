@@ -1,0 +1,1 @@
+ *"Sebuah kumpulan kenangan yang dirajut dengan kertas, foto, dan cerita. Scrapbook ini adalah petualangan visual tentang [tema, misal: perjalanan kita, tahun pertamaku di kuliah, kisah keluarga]. Setiap halaman adalah potongan hati, tertempel dengan cinta dan tawa."*  
